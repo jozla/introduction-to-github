@@ -1,2 +1,2 @@
 Sta da napisemo?
-Ne znamo.
+Bas ne znamo.
