@@ -1,3 +1,3 @@
 Izmene
-Promenio sam nesto
+Jos jednom
 
