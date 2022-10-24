@@ -1,3 +1,2 @@
-Izmene
-Jos jednom
+Napisao sam nesto
 
